@@ -1,2 +1,0 @@
-# Fritter
-# You-Grow-Girl-
